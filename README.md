@@ -1,0 +1,2 @@
+# ubiclick
+Politica de privacidad
